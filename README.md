@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @microwavebeef
+- 👀 I’m interested in not being big back
+- 🌱 I’m currently learning absolutely nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me ... you don't
+- 😄 Pronouns: not/bigback
+- ⚡ Fun fact: im not bigback
